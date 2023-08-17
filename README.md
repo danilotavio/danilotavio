@@ -5,13 +5,13 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on rei filósofo
-- 🌱 I’m currently learning sei la
-- 👯 I’m looking to collaborate on ...
+-Os fins justificão os meios
+-vocẽ não tem inimigos, ninguem tem inimigos
+- o homem nasce bom, mas a sociedade o corrompe
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about nada
 - 📫 How to reach me: 
 - 😄 Pronouns: digimon
 - ⚡ Fun fact: 
-![](https://media.tenor.com/uu_OmP_Fs6oAAAAd/fnaf-fnaf-memes.gif)
+![](https://media.tenor.com/uu_OmP_Fs6oAAAAd/fniaf-fnaf-memes.gif)
 
