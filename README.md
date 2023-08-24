@@ -8,10 +8,10 @@ Here are some ideas to get you started:
 -Os fins justificão os meios
 -vocẽ não tem inimigos, ninguem tem inimigos
 - o homem nasce bom, mas a sociedade o corrompe
-- 🤔 I’m looking for help with ...
+- 🤔 I’m looking for help with nada
 - 💬 Ask me about nada
 - 📫 How to reach me: 
-- 😄 Pronouns: digimon
-- ⚡ Fun fact: 
+- 😄 Pronouns: brasileirence
+- ⚡ Fun fact: filosofia 
 ![](https://media.tenor.com/uu_OmP_Fs6oAAAAd/fniaf-fnaf-memes.gif)
 
