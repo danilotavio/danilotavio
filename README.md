@@ -12,6 +12,6 @@ Here are some ideas to get you started:
  
 - 😄 Pronouns: pokemon
 - ⚡ Fun fact: estudo com 4 troxa
-- 
+- Tu é?
 ![](https://media.tenor.com/uu_OmP_Fs6oAAAAd/fniaf-fnaf-memes.gif)
 
