@@ -5,13 +5,11 @@
 
 Here are some ideas to get you started:
 
--Os fins justificão os meios
--vocẽ não tem inimigos, ninguem tem inimigos
-- o homem nasce bom, mas a sociedade o corrompe
+-sfsdfgbfgbfghnhgngnnhghgfgftg
   
  
-- 😄 Pronouns: pokemon
-- ⚡ Fun fact: estudo com 4 troxa
-- Tu é?
+- 😄 Pronouns: Transformer caminhão
+- ⚡ Fun fact: interessante
+- Freddy?
 ![](https://media.tenor.com/uu_OmP_Fs6oAAAAd/fniaf-fnaf-memes.gif)
 
